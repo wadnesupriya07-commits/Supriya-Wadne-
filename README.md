@@ -1,2 +1,2 @@
-# Supriya-Wadne-
-🎓 1st Year Engineering Student | AI &amp; Data Science🐍 Learning Python &amp; Data Structures🤖 
+# Supriyawadbe07
+🤖 AI & Data Science Student | 🌱 Learning • Building • Growing | 🐍 Python & Data Structures 🚀
